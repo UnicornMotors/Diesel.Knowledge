@@ -1,0 +1,8 @@
+- https://carbuzz.com/reasons-diesel-was-destined-to-die-in-cars/
+- https://carbuzz.com/tracking-the-downfal-of-diesel/
+- https://carbuzz.com/best-diesel-engines-ranked-on-torque-output/
+- https://carbuzz.com/smallest-diesel-engine-mass-produced/
+- https://carbuzz.com/features/best-diesel-cars-ever-made/
+- https://carbuzz.com/mercedes-benz-most-power-dense-four-cylinder-more-than-a-decade/
+- https://carbuzz.com/stellantis-vegetable-oil-powering-diesels/
+- https://carbuzz.com/diesel-engine-used-in-more-than-50-different-vehicles/
